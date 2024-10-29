@@ -1,3 +1,4 @@
  ##Olá, Eu sou Carliane. ✨
- - Fazendo um curso de informática
+ - Cursando informática.
+ - Estou no primeiro ano do Ensino Médio na EEEP Vereador José Batista Filho
  - Instagram: @carlianegdiogenes
